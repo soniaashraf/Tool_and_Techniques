@@ -1,7 +1,7 @@
 # CV - Sonia
 
 **Address:** Adalat Garh, Sialkot  
-**Phone Number:** 0342-4220563  
+**Phone Number:** 0300-0000000  
 **Job Objective:** Manager  
 
 ## Objective
